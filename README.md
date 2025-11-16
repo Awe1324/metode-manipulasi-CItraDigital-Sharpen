@@ -1,1 +1,0 @@
-# metode-manipulasi-CItraDigital-Sharpen
